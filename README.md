@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **mhrjnsujan.official@gmail.com**
 
-- ⚡ Fun fact **I'm Stupid 😜**
+- ⚡ Fun fact **I'm a Creator, Of my Own Software**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
